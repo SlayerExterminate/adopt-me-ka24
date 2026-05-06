@@ -1,4 +1,4 @@
-
+Experience adopt me like never before with stealth Scripts for adopt me, the #1 Script. Includes auto-heal and auto-sell for unbeatable performance.
 
 
 
